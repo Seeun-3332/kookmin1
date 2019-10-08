@@ -1,2 +1,1 @@
-# KOOK + MIN
-https://kookmin.ac.kr
+짱 ~~
